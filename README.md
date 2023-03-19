@@ -1,2 +1,2 @@
-# Changes in the reception of Kim Yoonsik's writings within Korean modern literature Scholarship (CRKMLS)
+# Changes in the Reception of Kim Yoonsik's Writings within Korean Modern Literature Scholarship (CRKMLS)
 
